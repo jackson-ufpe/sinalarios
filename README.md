@@ -1,4 +1,4 @@
 # Sinalários reunidos
 
-Acessibilidade Brasil, USP e CAS (em breve).
+Acessibilidade Brasil, INES (antigo) USP e CAS (em breve).
 
